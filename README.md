@@ -12,3 +12,5 @@ https://www.mediafire.com/file/9d4shbp6t3sbvud/SGTA50015/file
 land
 
 https://modsfire.com/R527d5y9Tg1pR0O
+
+https://www.quackartdesigns.com/cars/2002-2005-toyota-hilux-gl
